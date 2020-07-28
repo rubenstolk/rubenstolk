@@ -1,4 +1,7 @@
-### https://linkedin.com/in/stolk
+### Ruben Stolk 🏄🏻‍♂️
+Entrepreneur. Adventurer. Building mobile QHSE software at Capptions.
+
+##### https://linkedin.com/in/stolk
 
 <!--
 **rubenstolk/rubenstolk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
