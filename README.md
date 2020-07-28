@@ -1,5 +1,5 @@
 ### Ruben Stolk 🏄🏻‍♂️
-Entrepreneur. Adventurer. Building mobile QHSE software at Capptions.
+Entrepreneur. Adventurer. Codes anything. Building mobile QHSE software at Capptions.
 
 ##### https://linkedin.com/in/stolk
 
